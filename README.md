@@ -1,2 +1,2 @@
-# daily-note.txt
-just a daily note
+Day 1:
+Learning Consistently 🌱
