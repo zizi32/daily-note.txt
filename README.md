@@ -1,2 +1,2 @@
-Day 1:
-Learning Consistently 🌱
+Day 2:
+besok taun baru jir
