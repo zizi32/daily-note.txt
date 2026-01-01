@@ -1,2 +1,2 @@
-Day 2:
-besok taun baru jir
+Day 3:
+happy new year
