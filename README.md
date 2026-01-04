@@ -1,2 +1,2 @@
-Day 5:
-bisa pasang kali linux coy
+Day 6:
+bentar lagi sekolah jink
