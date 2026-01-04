@@ -1,2 +1,2 @@
-Day 6:
-bentar lagi sekolah jink
+Day 7:
+gud morning 
