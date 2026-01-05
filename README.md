@@ -1,2 +1,2 @@
-Day 7:
-gud morning 
+Day 8:
+linux mint
