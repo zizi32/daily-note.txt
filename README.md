@@ -1,2 +1,2 @@
-Day 8:
-linux mint
+Day 9:
+au gabut
