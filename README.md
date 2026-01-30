@@ -1,1 +1,1 @@
-mi bombom
+hidup jdovodic
